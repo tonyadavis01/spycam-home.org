@@ -1,2 +1,2 @@
-# spycam-home.org
+# spycam-home.com
 сообщество по интересам
